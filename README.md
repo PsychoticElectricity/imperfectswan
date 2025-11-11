@@ -1,4 +1,5 @@
-<img width="700" height="400" alt="image" src="https://github.com/user-attachments/assets/c9a708a0-9629-4e6c-8f29-96d1f8abdfad" />
+<img width="2000" height="400" alt="image" src="https://github.com/user-attachments/assets/cc231bf3-4b10-4a0d-a611-2f6882b16f36" />
+
 
 
 ʜɪ! ɪ'ᴍ ᴛɪʟʟ. ɪ'ᴍ ᴀ ꜰɪᴄᴛɪᴏɴᴋɪɴ ᴀɴᴅ ᴡᴏᴜʟᴅ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇ ɪꜰ ʏᴏᴜ ᴛʀᴇᴀᴛᴇᴅ ᴍᴇ ᴀꜱ ꜱᴜᴄʜ.
